@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Aspiring Software Engineer: Dedicated to solving complex problems through automation and programming studying Software Engineering at University of Western Ontario.<br><br>🤝 Team Player: Eager to work with like-minded professionals to tackle challenging problems and develop innovative solutions.<br><br>💬 Tech Conversationalist: Open to discussions on various tech topics—feel free to reach out to my email: ch.lam1328@gmail.com<br><br>Feel free to check out my projects and connect with me!<br><br>
+🔭 Working as an AI Engineer.<br><br>🤝 Team Player: Eager to work with like-minded professionals to tackle challenging problems and develop innovative solutions.<br><br>💬 Tech Conversationalist: Open to discussions on various tech topics—feel free to reach out to my email: ch.lam1328@gmail.com<br><br>Feel free to check out my projects and connect with me!<br><br>
 
 
 ## 🌐 Socials:
